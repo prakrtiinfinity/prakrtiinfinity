@@ -9,4 +9,5 @@ MEng Aeronautical Engineering student at Imperial College London, looking for a 
 - CAD and engineering drawings
 
 **Portfolio:** prakrtiinfinity.github.io 
+
 **LinkedIn:** [www.linkedin.com/in/prakrti-gurukondala-manohar-b6911a208]
