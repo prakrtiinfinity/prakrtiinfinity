@@ -10,4 +10,4 @@ MEng Aeronautical Engineering student at Imperial College London, looking for a 
 
 **Portfolio:** prakrtiinfinity.github.io 
 
-**LinkedIn:** [www.linkedin.com/in/prakrti-gurukondala-manohar-b6911a208]
+**LinkedIn:** www.linkedin.com/in/prakrti-gurukondala-manohar-b6911a208
